@@ -1,4 +1,4 @@
-✪ 本站永久网址 https://Git.io/51 ✪
+✪ 本站永久网址 https://Git.io/168 ✪
 ###一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/znianw/video/issues/18)
 
@@ -42,5 +42,5 @@
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10863846/308fd338-7faf-11e5-9cad-bd2efe947e06.jpg" width="639"></a>
 <hr></hr>
 #### 持续翻墙方法
-- 收藏本站  `https://Git.io/51`
+- 收藏本站  `https://Git.io/168`
 - 邮箱索取 `51@555111.info` 发送一封任意主题的空白信至该邮箱，即可收到最新版翻墙软件。若使用国内邮箱无法收到回信，请用海外邮箱再试一次，肯定能收到。
