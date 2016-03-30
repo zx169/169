@@ -13,7 +13,7 @@
 <a href="http://bit.do/N468"><img src="https://cloud.githubusercontent.com/assets/13546896/13311028/2688bfe8-db59-11e5-91e3-796fd6e096d7.jpg" width="156"></a>
 <a href="http://bit.do/N467"><img src="https://cloud.githubusercontent.com/assets/13546896/13269224/a12f79c2-da54-11e5-8a97-7ad7c1effc07.jpg" width="156"></a>
 <a href="http://bit.do/N466"><img src="https://cloud.githubusercontent.com/assets/13546896/12987628/e88642da-d0ca-11e5-8b5e-e23b2381b7f3.jpg" width="156"></a>
-####<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxjyzk.asp" target="_blank"> 更多请点击 </a>
+####<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxjyzk.asp" target="_blank"> 更多请点击... </a>
 #### ▶ 大陆禁片 · 免费高速在线观看
 <a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417768/d04579f4-df3c-11e5-96d6-1feba792a47a.jpg" width="317"></a>
 <a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10943252/a8a86968-82e1-11e5-8200-326465c31df3.jpg" width="317"></a>
