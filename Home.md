@@ -1,10 +1,9 @@
 ✪ 本站永久网址 https://Git.io/168 ✪
-#### ▶ 新纪元周刊 · 免费高速在线阅读
-<a href="http://bit.do/N469"><img src="https://cloud.githubusercontent.com/assets/13546896/13418099/46355230-df40-11e5-8b06-c541cc787e0f.jpg" width="156"></a>
-<a href="http://bit.do/N468"><img src="https://cloud.githubusercontent.com/assets/13546896/13311028/2688bfe8-db59-11e5-91e3-796fd6e096d7.jpg" width="156"></a>
-<a href="http://bit.do/N467"><img src="https://cloud.githubusercontent.com/assets/13546896/13269224/a12f79c2-da54-11e5-8a97-7ad7c1effc07.jpg" width="156"></a>
-<a href="http://bit.do/N466"><img src="https://cloud.githubusercontent.com/assets/13546896/12987628/e88642da-d0ca-11e5-8b5e-e23b2381b7f3.jpg" width="156"></a>
-####<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxjyzk.asp" target="_blank"> 更多新纪元周刊请点击... </a>
+####▶ 明慧特刊 · 免费高速在线阅读
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/sjhk.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498920/f69361fe-e129-11e5-9bcd-03a92145a921.jpg" width="156" height="230"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zyklmnm.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498901/d9d40dac-e129-11e5-9171-42ad3ee3aea7.jpg" width="156" height="230"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/tianqian.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13499399/4384da40-e12c-11e5-80f5-17e6dcb528b6.jpg" width="156" height="230"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/ysnbjhp.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13501115/61993650-e133-11e5-8714-17edf5fa26cb.jpg" width="156" height="230"></a>
 #### ▶ 大陆禁片 · 免费高速在线观看
 <a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417768/d04579f4-df3c-11e5-96d6-1feba792a47a.jpg" width="317"></a>
 <a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10943252/a8a86968-82e1-11e5-8200-326465c31df3.jpg" width="317"></a>
@@ -18,11 +17,12 @@
 ####▶ 音频集锦 · 免费高速在线观看
 <a href="http://ur1.ca/op0fs" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224023/1d1f821e-f8d9-11e5-8290-3461df761e59.png" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224035/7bd9e3b2-f8d9-11e5-9098-fe7efc40a15d.png" width="317" height="91"></a>
-####▶ 明慧期刊 · 免费高速在线阅读
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/sjhk.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498920/f69361fe-e129-11e5-9bcd-03a92145a921.jpg" width="156" height="230"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zyklmnm.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498901/d9d40dac-e129-11e5-9171-42ad3ee3aea7.jpg" width="156" height="230"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/tianqian.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13499399/4384da40-e12c-11e5-80f5-17e6dcb528b6.jpg" width="156" height="230"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/ysnbjhp.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13501115/61993650-e133-11e5-8714-17edf5fa26cb.jpg" width="156" height="230"></a>
+#### ▶ 新纪元及其他杂质 · 免费高速在线阅读
+<a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="156"></a>
+<a href="http://bit.do/N468"><img src="https://cloud.githubusercontent.com/assets/13546896/13311028/2688bfe8-db59-11e5-91e3-796fd6e096d7.jpg" width="156"></a>
+<a href="http://bit.do/N467"><img src="https://cloud.githubusercontent.com/assets/13546896/13269224/a12f79c2-da54-11e5-8a97-7ad7c1effc07.jpg" width="156"></a>
+<a href="http://bit.do/N466"><img src="https://cloud.githubusercontent.com/assets/13546896/12987628/e88642da-d0ca-11e5-8b5e-e23b2381b7f3.jpg" width="156"></a>
+####<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxjyzk.asp" target="_blank"> 更多新纪元周刊请点击... </a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/13546896/13414728/d10d9124-df22-11e5-842d-0864a75eb218.jpg" width="210" height="300"></a>
 <a href="http://bit.do/zx-77"><img src="https://cloud.githubusercontent.com/assets/13546896/13414727/d105deb6-df22-11e5-8ce2-5a1d11d53f51.jpg" width="210" height="300"></a>
 <a href="http://bit.do/zx-76"><img src="https://cloud.githubusercontent.com/assets/13546896/13414726/d1049ede-df22-11e5-9a6f-70609d1f0cf5.jpg" width="210" height="300"></a>
