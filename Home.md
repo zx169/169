@@ -19,7 +19,7 @@
 <a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417768/d04579f4-df3c-11e5-96d6-1feba792a47a.jpg" width="317"></a>
 <a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10943252/a8a86968-82e1-11e5-8200-326465c31df3.jpg" width="317"></a>
 <a href="https://github.com/znianw/video/issues/22" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/14063699/493d97f6-f3ab-11e5-9451-3255023a79a5.jpg" width="639"></a>
-<a href="https://github.com/znianw/video/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417842/70b980a6-df3d-11e5-9d50-871a61e03822.jpg" width="317" height="91"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417842/70b980a6-df3d-11e5-9d50-871a61e03822.jpg" width="317" height="91"></a>
 <a href="http://bit.do/cangzishi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/14063740/9ab28898-f3ac-11e5-80de-64d215ca39f5.jpg" width="317" height="91"></a>
 ####▶ 明慧期刊 · 免费高速在线阅读
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/sjhk.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498920/f69361fe-e129-11e5-9bcd-03a92145a921.jpg" width="156" height="230"></a>
