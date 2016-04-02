@@ -1,9 +1,9 @@
 ✪ 本站永久网址 https://Git.io/168 ✪
 ####▶ 明慧特刊 · 免费高速在线阅读
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/sjhk.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498920/f69361fe-e129-11e5-9bcd-03a92145a921.jpg" width="156" height="230"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zyklmnm.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498901/d9d40dac-e129-11e5-9171-42ad3ee3aea7.jpg" width="156" height="230"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/tianqian.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13499399/4384da40-e12c-11e5-80f5-17e6dcb528b6.jpg" width="156" height="230"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/ysnbjhp.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13501115/61993650-e133-11e5-8714-17edf5fa26cb.jpg" width="156" height="230"></a>
+<a href="http://ur1.ca/onwch" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13498920/f69361fe-e129-11e5-9bcd-03a92145a921.jpg" width="156" height="230"></a>
+<a href="http://ur1.ca/onwcf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13498901/d9d40dac-e129-11e5-9171-42ad3ee3aea7.jpg" width="156" height="230"></a>
+<a href="http://ur1.ca/onwce" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13499399/4384da40-e12c-11e5-80f5-17e6dcb528b6.jpg" width="156" height="230"></a>
+<a href="http://ur1.ca/onwc8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13501115/61993650-e133-11e5-8714-17edf5fa26cb.jpg" width="156" height="230"></a>
 #### ▶ 大陆禁片 · 免费高速在线观看
 <a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417768/d04579f4-df3c-11e5-96d6-1feba792a47a.jpg" width="317"></a>
 <a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10943252/a8a86968-82e1-11e5-8200-326465c31df3.jpg" width="317"></a>
