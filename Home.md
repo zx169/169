@@ -6,8 +6,6 @@
 <a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
 <a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
 
-如有疑问请联系QQ &nbsp; 840330436 &nbsp;&nbsp; ✪ &nbsp;&nbsp; 481045423 &nbsp;&nbsp; ✪ &nbsp;&nbsp; 944416580  欢迎交流
-##### ● [【最新】中国一周大事解读：中朝关系生变后A股暴跌 两会前习近平三路围剿江泽民](https://github.com/znianw/truth/issues/12) 
 #### ▶ 新纪元周刊 · 免费高速在线阅读
 <a href="http://bit.do/N469"><img src="https://cloud.githubusercontent.com/assets/13546896/13418099/46355230-df40-11e5-8b06-c541cc787e0f.jpg" width="156"></a>
 <a href="http://bit.do/N468"><img src="https://cloud.githubusercontent.com/assets/13546896/13311028/2688bfe8-db59-11e5-91e3-796fd6e096d7.jpg" width="156"></a>
@@ -41,9 +39,7 @@
 <a href="http://bit.do/tchf-105"><img src="https://cloud.githubusercontent.com/assets/13546896/13414864/f50a8e96-df23-11e5-9fff-e3b3b95aef6a.jpg" width="210" height="300"></a>
 <a href="http://bit.do/tchf-104"><img src="https://cloud.githubusercontent.com/assets/13546896/13414867/f6fbacda-df23-11e5-845a-099c9767d171.jpg" width="210" height="300" ></a>
 <a href="http://bit.do/tchf-103"><img src="https://cloud.githubusercontent.com/assets/13546896/13414873/f8700002-df23-11e5-9f03-ff0ff3b610c0.jpg" width="210" height="300"></a>
-#### ▶ 禁闻快览
-##### ● [江泽民的贪腐治军](https://github.com/znianw/video/issues/17) ● [“擒贼先擒王 抓捕江泽民”系列报导](https://github.com/znianw/video/issues/8) ● [【特稿】中共亡党危机](https://github.com/znianw/video/issues/7) 
-##### ● [【特稿】中共卖国·大好河山拱手送人·史上最大卖国政权](https://github.com/znianw/video/issues/1) ● [天津大爆炸真相探秘](https://github.com/znianw/video/issues/15)  
+
 ##### ● [【九评共产党】之一](https://github.com/znianw/video/issues/2) · [之二](https://github.com/znianw/video/issues/3) · [之三](https://github.com/znianw/video/issues/4) · [之四](https://github.com/znianw/video/issues/5) · [之五](https://github.com/znianw/video/issues/9) · [之六](https://github.com/znianw/video/issues/10) · [之七](https://github.com/znianw/video/issues/11) · [之八](https://github.com/znianw/video/issues/12) · [之九](https://github.com/znianw/video/issues/13)
 ##### ● [【独家】揭秘中共庞大系统专窃西方机密](https://github.com/znianw/video/issues/14) ● [【独家】沈阳陆军总院实习医生亲历活摘器官](https://github.com/znianw/video/issues/6)
 #### ▶ 更多精彩禁片请访问「网门」
