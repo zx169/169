@@ -13,8 +13,7 @@
 <a href="http://bit.do/N468"><img src="https://cloud.githubusercontent.com/assets/13546896/13311028/2688bfe8-db59-11e5-91e3-796fd6e096d7.jpg" width="156"></a>
 <a href="http://bit.do/N467"><img src="https://cloud.githubusercontent.com/assets/13546896/13269224/a12f79c2-da54-11e5-8a97-7ad7c1effc07.jpg" width="156"></a>
 <a href="http://bit.do/N466"><img src="https://cloud.githubusercontent.com/assets/13546896/12987628/e88642da-d0ca-11e5-8b5e-e23b2381b7f3.jpg" width="156"></a>
-####<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxjyzk.asp" target="_blank"> 更多请点击... </a>
-####<a href="http://www.google.com"><img src="https://cloud.githubusercontent.com/assets/18081243/14133487/5a754cb0-f69b-11e5-8b33-ee6cc30cc568.png" width="156"></a>
+####<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxjyzk.asp" target="_blank"> 更多新纪元周刊请点击... </a>
 #### ▶ 大陆禁片 · 免费高速在线观看
 <a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417768/d04579f4-df3c-11e5-96d6-1feba792a47a.jpg" width="317"></a>
 <a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10943252/a8a86968-82e1-11e5-8200-326465c31df3.jpg" width="317"></a>
@@ -22,6 +21,9 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223941/f974f350-f8d6-11e5-97b8-e7c5fc3ceb20.png" width="317"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417842/70b980a6-df3d-11e5-9d50-871a61e03822.jpg" width="317" height="91"></a>
 <a href="http://bit.do/cangzishi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/14063740/9ab28898-f3ac-11e5-80de-64d215ca39f5.jpg" width="317" height="91"></a>
+####▶ 闪画集锦 · 免费高速在线观看
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223981/3ccbcf56-f8d8-11e5-92b3-679ea9aaa1d8.png" width="317" height="91"></a>
+<a href="http://ur1.ca/ooe8t" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223999/9b0e4e90-f8d8-11e5-8dae-6a136decc632.png" width="317" height="91"></a>
 ####▶ 明慧期刊 · 免费高速在线阅读
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/sjhk.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498920/f69361fe-e129-11e5-9bcd-03a92145a921.jpg" width="156" height="230"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zyklmnm.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498901/d9d40dac-e129-11e5-9171-42ad3ee3aea7.jpg" width="156" height="230"></a>
