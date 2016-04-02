@@ -24,6 +24,9 @@
 ####▶ 闪画集锦 · 免费高速在线观看
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223981/3ccbcf56-f8d8-11e5-92b3-679ea9aaa1d8.png" width="317" height="91"></a>
 <a href="http://ur1.ca/ooe8t" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223999/9b0e4e90-f8d8-11e5-8dae-6a136decc632.png" width="317" height="91"></a>
+####▶ 音频集锦 · 免费高速在线观看
+<a href="http://ur1.ca/op0fs" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224023/1d1f821e-f8d9-11e5-8290-3461df761e59.png" width="317" height="91"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224035/7bd9e3b2-f8d9-11e5-9098-fe7efc40a15d.png" width="317" height="91"></a>
 ####▶ 明慧期刊 · 免费高速在线阅读
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/sjhk.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498920/f69361fe-e129-11e5-9bcd-03a92145a921.jpg" width="156" height="230"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zyklmnm.pdf"><img src="https://cloud.githubusercontent.com/assets/13546896/13498901/d9d40dac-e129-11e5-9171-42ad3ee3aea7.jpg" width="156" height="230"></a>
