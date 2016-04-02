@@ -1,11 +1,4 @@
 ✪ 本站永久网址 https://Git.io/168 ✪
-###一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
-✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
-
-<a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
-<a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
-<a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
-
 #### ▶ 新纪元周刊 · 免费高速在线阅读
 <a href="http://bit.do/N469"><img src="https://cloud.githubusercontent.com/assets/13546896/13418099/46355230-df40-11e5-8b06-c541cc787e0f.jpg" width="156"></a>
 <a href="http://bit.do/N468"><img src="https://cloud.githubusercontent.com/assets/13546896/13311028/2688bfe8-db59-11e5-91e3-796fd6e096d7.jpg" width="156"></a>
@@ -40,11 +33,15 @@
 <a href="http://bit.do/tchf-104"><img src="https://cloud.githubusercontent.com/assets/13546896/13414867/f6fbacda-df23-11e5-845a-099c9767d171.jpg" width="210" height="300" ></a>
 <a href="http://bit.do/tchf-103"><img src="https://cloud.githubusercontent.com/assets/13546896/13414873/f8700002-df23-11e5-9f03-ff0ff3b610c0.jpg" width="210" height="300"></a>
 
-##### ● [【九评共产党】之一](https://github.com/znianw/video/issues/2) · [之二](https://github.com/znianw/video/issues/3) · [之三](https://github.com/znianw/video/issues/4) · [之四](https://github.com/znianw/video/issues/5) · [之五](https://github.com/znianw/video/issues/9) · [之六](https://github.com/znianw/video/issues/10) · [之七](https://github.com/znianw/video/issues/11) · [之八](https://github.com/znianw/video/issues/12) · [之九](https://github.com/znianw/video/issues/13)
-##### ● [【独家】揭秘中共庞大系统专窃西方机密](https://github.com/znianw/video/issues/14) ● [【独家】沈阳陆军总院实习医生亲历活摘器官](https://github.com/znianw/video/issues/6)
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10863846/308fd338-7faf-11e5-9cad-bd2efe947e06.jpg" width="639"></a>
 <hr></hr>
+###一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
+✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
+
+<a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
+<a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
+<a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
 #### 持续翻墙方法
 - 收藏本站  `https://Git.io/168`
 - 邮箱索取 `freeget.one@gmail.com` 发送一封任意主题的空白信至该邮箱，即可收到最新版翻墙软件。若使用国内邮箱无法收到回信，请用海外邮箱再试一次，肯定能收到。
