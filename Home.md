@@ -24,20 +24,10 @@
 <a href="http://ur1.ca/op0fs" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224023/1d1f821e-f8d9-11e5-8290-3461df761e59.png" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224035/7bd9e3b2-f8d9-11e5-9098-fe7efc40a15d.png" width="317" height="91"></a>
 #### ▶ 新纪元及其他杂质 · 免费高速在线阅读
-<a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="156"></a>
-<a href="http://bit.do/N468"><img src="https://cloud.githubusercontent.com/assets/13546896/13311028/2688bfe8-db59-11e5-91e3-796fd6e096d7.jpg" width="156"></a>
-<a href="http://bit.do/N467"><img src="https://cloud.githubusercontent.com/assets/13546896/13269224/a12f79c2-da54-11e5-8a97-7ad7c1effc07.jpg" width="156"></a>
-<a href="http://bit.do/N466"><img src="https://cloud.githubusercontent.com/assets/13546896/12987628/e88642da-d0ca-11e5-8b5e-e23b2381b7f3.jpg" width="156"></a>
-####<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxjyzk.asp" target="_blank"> 更多新纪元周刊请点击... </a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="210"></a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/13546896/13414728/d10d9124-df22-11e5-842d-0864a75eb218.jpg" width="210" height="300"></a>
-<a href="http://bit.do/zx-77"><img src="https://cloud.githubusercontent.com/assets/13546896/13414727/d105deb6-df22-11e5-8ce2-5a1d11d53f51.jpg" width="210" height="300"></a>
-<a href="http://bit.do/zx-76"><img src="https://cloud.githubusercontent.com/assets/13546896/13414726/d1049ede-df22-11e5-9a6f-70609d1f0cf5.jpg" width="210" height="300"></a>
 <a href="http://bit.do/mingbai-63"><img src="https://cloud.githubusercontent.com/assets/13546896/13414515/7be2ca94-df21-11e5-8e4e-8277fc3305a1.jpg" width="210" height="300" vspace="15"></a>
-<a href="http://bit.do/mingbai-62"><img src="https://cloud.githubusercontent.com/assets/13546896/13414513/7be27e86-df21-11e5-8bf9-850fcbb0af1d.jpg" width="210" height="300" vspace="15"></a>
-<a href="http://bit.do/mingbai-61"><img src="https://cloud.githubusercontent.com/assets/13546896/13414514/7be2966e-df21-11e5-836f-9ad311692817.jpg" width="210" height="300" vspace="15"></a>
 <a href="http://bit.do/tchf-105"><img src="https://cloud.githubusercontent.com/assets/13546896/13414864/f50a8e96-df23-11e5-9fff-e3b3b95aef6a.jpg" width="210" height="300"></a>
-<a href="http://bit.do/tchf-104"><img src="https://cloud.githubusercontent.com/assets/13546896/13414867/f6fbacda-df23-11e5-845a-099c9767d171.jpg" width="210" height="300" ></a>
-<a href="http://bit.do/tchf-103"><img src="https://cloud.githubusercontent.com/assets/13546896/13414873/f8700002-df23-11e5-9f03-ff0ff3b610c0.jpg" width="210" height="300"></a>
 
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10863846/308fd338-7faf-11e5-9cad-bd2efe947e06.jpg" width="639"></a>
