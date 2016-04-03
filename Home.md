@@ -25,6 +25,10 @@
 <a href="http://ur1.ca/ooe8t" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223999/9b0e4e90-f8d8-11e5-8dae-6a136decc632.png" width="317" height="91"></a>
 #### ▶ 明慧期刊 · 免费高速在线阅读
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230812/68ab1126-f9ab-11e5-8cad-547169241a3c.png" width="210" height="300"></a>
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230814/bf013442-f9ab-11e5-83b3-9e43fd659023.png" width="210" height="300"></a>
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230817/f7dd1312-f9ab-11e5-9a71-8af2c2daa6dd.png" width="210" height="300"></a>
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230820/6433c786-f9ac-11e5-8580-bfc41a7f496c.png" width="210" height="300"></a>
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230829/ca784684-f9ac-11e5-9a15-f786d8f4a416.png" width="210" height="300"></a>
 #### ▶ 新纪元及其他杂志 · 免费高速在线阅读
 <a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="210"></a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/13546896/13414728/d10d9124-df22-11e5-842d-0864a75eb218.jpg" width="210" height="300"></a>
