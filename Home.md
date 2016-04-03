@@ -24,6 +24,10 @@
 ####▶ 闪画集锦 · 免费高速在线观看
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223981/3ccbcf56-f8d8-11e5-92b3-679ea9aaa1d8.png" width="317" height="91"></a>
 <a href="http://ur1.ca/ooe8t" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223999/9b0e4e90-f8d8-11e5-8dae-6a136decc632.png" width="317" height="91"></a>
+####▶ 精彩网站 · 免翻
+<a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230988/bcb6be98-f9b3-11e5-8da6-dca3637f5037.png" width="317" height="91"></a>
+<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230992/e2b67af2-f9b3-11e5-9a87-30371b3860c9.png" width="317" height="91"></a>
+
 #### ▶ 明慧期刊 · 免费高速在线阅读
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/13546896/13414728/d10d9124-df22-11e5-842d-0864a75eb218.jpg" width="210" height="300"></a>
 <a href="http://bit.do/mingbai-63"><img src="https://cloud.githubusercontent.com/assets/13546896/13414515/7be2ca94-df21-11e5-8e4e-8277fc3305a1.jpg" width="210" height="300" vspace="15"></a>
