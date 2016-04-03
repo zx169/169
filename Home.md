@@ -18,7 +18,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223941/f974f350-f8d6-11e5-97b8-e7c5fc3ceb20.png" width="317"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417842/70b980a6-df3d-11e5-9d50-871a61e03822.jpg" width="317" height="91"></a>
 <a href="http://bit.do/cangzishi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/14063740/9ab28898-f3ac-11e5-80de-64d215ca39f5.jpg" width="317" height="91"></a>
-####▶ 音频集锦 · 免费高速在线观看
+####▶ 音频集锦 · 免费在线收听及下载
 <a href="http://ur1.ca/op0fs" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224023/1d1f821e-f8d9-11e5-8290-3461df761e59.png" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224035/7bd9e3b2-f8d9-11e5-9098-fe7efc40a15d.png" width="317" height="91"></a>
 ####▶ 闪画集锦 · 免费高速在线观看
