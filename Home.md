@@ -34,6 +34,10 @@
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230820/6433c786-f9ac-11e5-8580-bfc41a7f496c.png" width="210" height="300"></a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230829/ca784684-f9ac-11e5-9a15-f786d8f4a416.png" width="210" height="300"></a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230870/daafe0d2-f9ae-11e5-8abe-80928144e417.png" width="210" height="300"></a>
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230878/0e2bb4ea-f9af-11e5-9276-e2ce2dc16cc6.JPG" width="210" height="300"></a>
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230886/4270cace-f9af-11e5-8283-01fa69f005f0.JPG" width="210" height="300"></a>
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230889/773ddb98-f9af-11e5-8a48-4d00eb88793c.JPG" width="210" height="300"></a>
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230898/b44a3f9a-f9af-11e5-818d-d88b7d697da7.JPG" width="210" height="300"></a>
 #### ▶ 新纪元及其他杂志 · 免费高速在线阅读
 <a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
