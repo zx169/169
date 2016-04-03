@@ -24,11 +24,12 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223981/3ccbcf56-f8d8-11e5-92b3-679ea9aaa1d8.png" width="317" height="91"></a>
 <a href="http://ur1.ca/ooe8t" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223999/9b0e4e90-f8d8-11e5-8dae-6a136decc632.png" width="317" height="91"></a>
 #### ▶ 明慧期刊 · 免费高速在线阅读
+<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230812/68ab1126-f9ab-11e5-8cad-547169241a3c.png" width="210" height="300"></a>
+#### ▶ 新纪元及其他杂志 · 免费高速在线阅读
+<a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="210"></a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/13546896/13414728/d10d9124-df22-11e5-842d-0864a75eb218.jpg" width="210" height="300"></a>
 <a href="http://bit.do/mingbai-63"><img src="https://cloud.githubusercontent.com/assets/13546896/13414515/7be2ca94-df21-11e5-8e4e-8277fc3305a1.jpg" width="210" height="300" vspace="15"></a>
 <a href="http://bit.do/tchf-105"><img src="https://cloud.githubusercontent.com/assets/13546896/13414864/f50a8e96-df23-11e5-9fff-e3b3b95aef6a.jpg" width="210" height="300"></a>
-#### ▶ 新纪元及其他杂志 · 免费高速在线阅读
-<a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10863846/308fd338-7faf-11e5-9cad-bd2efe947e06.jpg" width="639"></a>
 <hr></hr>
