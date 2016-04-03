@@ -33,11 +33,11 @@
 <a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14231007/eb563ca0-f9b4-11e5-9a0e-d17a45f7c9ff.png" width="317" height="91"></a>
 <a href="https://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14231008/0f79d33a-f9b5-11e5-86b6-fa6b69738746.png" width="317" height="91"></a>
 #### ▶ 明慧期刊 · 免费高速在线阅读
-<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/13546896/13414728/d10d9124-df22-11e5-842d-0864a75eb218.jpg" width="210" height="300"></a>
-<a href="http://bit.do/mingbai-63"><img src="https://cloud.githubusercontent.com/assets/13546896/13414515/7be2ca94-df21-11e5-8e4e-8277fc3305a1.jpg" width="210" height="300" vspace="15"></a>
-<a href="http://bit.do/tchf-105"><img src="https://cloud.githubusercontent.com/assets/13546896/13414864/f50a8e96-df23-11e5-9fff-e3b3b95aef6a.jpg" width="210" height="300"></a>
+<a href="http://bit.do/zx-78" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13414728/d10d9124-df22-11e5-842d-0864a75eb218.jpg" width="210" height="300"></a>
+<a href="http://bit.do/mingbai-63" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13414515/7be2ca94-df21-11e5-8e4e-8277fc3305a1.jpg" width="210" height="300" vspace="15"></a>
+<a href="http://bit.do/tchf-105" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13414864/f50a8e96-df23-11e5-9fff-e3b3b95aef6a.jpg" width="210" height="300"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/MHZB/MHZB-577.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230812/68ab1126-f9ab-11e5-8cad-547169241a3c.png" width="210" height="300"></a>
-<a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230814/bf013442-f9ab-11e5-83b3-9e43fd659023.png" width="210" height="300"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/santui/santui-246.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230814/bf013442-f9ab-11e5-83b3-9e43fd659023.png" width="210" height="300"></a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230817/f7dd1312-f9ab-11e5-9a71-8af2c2daa6dd.png" width="210" height="300"></a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230820/6433c786-f9ac-11e5-8580-bfc41a7f496c.png" width="210" height="300"></a>
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230829/ca784684-f9ac-11e5-9a15-f786d8f4a416.png" width="210" height="300"></a>
