@@ -27,7 +27,11 @@
 ####▶ 精彩网站 · 免翻
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230988/bcb6be98-f9b3-11e5-8da6-dca3637f5037.png" width="317" height="91"></a>
 <a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230992/e2b67af2-f9b3-11e5-9a87-30371b3860c9.png" width="317" height="91"></a>
-
+<a href="https://dvxykdxzflgpz.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230999/2cfffcc8-f9b4-11e5-9f94-4e6a87f0e1b3.png" width="317" height="91"></a>
+<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14231003/63304348-f9b4-11e5-8225-1584d7ff5dac.png" width="317" height="91"></a>
+<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14231006/d0580a1e-f9b4-11e5-8885-d00adb73426a.png" width="317" height="91"></a>
+<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14231007/eb563ca0-f9b4-11e5-9a0e-d17a45f7c9ff.png" width="317" height="91"></a>
+<a href="https://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14231008/0f79d33a-f9b5-11e5-86b6-fa6b69738746.png" width="317" height="91"></a>
 #### ▶ 明慧期刊 · 免费高速在线阅读
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/13546896/13414728/d10d9124-df22-11e5-842d-0864a75eb218.jpg" width="210" height="300"></a>
 <a href="http://bit.do/mingbai-63"><img src="https://cloud.githubusercontent.com/assets/13546896/13414515/7be2ca94-df21-11e5-8e4e-8277fc3305a1.jpg" width="210" height="300" vspace="15"></a>
