@@ -48,7 +48,7 @@
 <a href="http://bit.do/zx-78"><img src="https://cloud.githubusercontent.com/assets/18081243/14230898/b44a3f9a-f9af-11e5-818d-d88b7d697da7.JPG" width="210" height="300"></a>
 #### ▶ 新纪元及其他杂志 · 免费高速在线阅读
 <a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="210"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230918/8e42337e-f9b0-11e5-92b5-986afb445db7.png" width="210"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxsh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230918/8e42337e-f9b0-11e5-92b5-986afb445db7.png" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10863846/308fd338-7faf-11e5-9cad-bd2efe947e06.jpg" width="639"></a>
 <hr></hr>
