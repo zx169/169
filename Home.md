@@ -10,6 +10,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/cheat.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224653/de6d4eb8-f8ef-11e5-9bbc-c78d4e7effde.png" width="156" height="230"></a>
 <a href="http://ur1.ca/op0wi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224680/a1c8f574-f8f0-11e5-877d-d036d180c394.png" width="156" height="230"></a>
 <a href="http://ur1.ca/op0ws" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224686/e6d544ce-f8f0-11e5-817b-74ef313668e8.png" width="156" height="230"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/santui.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230838/518bdfb4-f9ad-11e5-8510-504e872cb1e9.png" width="156" height="230"></a>
 #### ▶ 大陆禁片 · 免费高速在线观看
 <a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417768/d04579f4-df3c-11e5-96d6-1feba792a47a.jpg" width="317"></a>
 <a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10943252/a8a86968-82e1-11e5-8200-326465c31df3.jpg" width="317"></a>
