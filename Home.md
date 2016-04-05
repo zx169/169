@@ -22,8 +22,16 @@
 <a href="http://ur1.ca/op0fs" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224023/1d1f821e-f8d9-11e5-8290-3461df761e59.png" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224035/7bd9e3b2-f8d9-11e5-9098-fe7efc40a15d.png" width="317" height="91"></a>
 ####▶ 闪画集锦 · 免费高速在线观看
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223981/3ccbcf56-f8d8-11e5-92b3-679ea9aaa1d8.png" width="317" height="91"></a>
-<a href="http://ur1.ca/ooe8t" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223999/9b0e4e90-f8d8-11e5-8dae-6a136decc632.png" width="317" height="91"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279885/dee6bcaa-fb72-11e5-8744-7c194ba21a05.JPG" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279887/deee3746-fb72-11e5-9e95-f143d08f680a.JPG" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279881/dec2929e-fb72-11e5-9160-1ba43be8c31a.JPG" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279886/deed4d68-fb72-11e5-86b7-b830d46cde06.jpg" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279888/df0d154e-fb72-11e5-8f14-d1afe25cfb4b.JPG" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279879/de6a4576-fb72-11e5-811b-3da1d762f188.jpg" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279880/de981c30-fb72-11e5-9a53-649160ac5d86.jpg" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279883/dee0b102-fb72-11e5-8656-9fe3e24b37f9.jpg" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279882/dee05842-fb72-11e5-822a-cc1152659b91.jpg" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279884/dee43980-fb72-11e5-8072-d9790c3805d2.jpg" width="206" height="80"></a>
 ####▶ 精彩网站 · 免翻
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
 <a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
