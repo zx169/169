@@ -12,12 +12,12 @@
 <a href="http://ur1.ca/op0ws" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279502/e48e38b0-fb70-11e5-9005-cc3e153dedc1.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/santui.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279503/e48fa93e-fb70-11e5-9cfd-e08b8e080078.jpg" width="100" height="142"></a>
 #### ▶ 大陆禁片 · 免费高速在线观看
-<a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417768/d04579f4-df3c-11e5-96d6-1feba792a47a.jpg" width="317"></a>
-<a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10943252/a8a86968-82e1-11e5-8200-326465c31df3.jpg" width="317"></a>
-<a href="http://bit.do/shengsi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223893/227b8bd0-f8d5-11e5-89a3-0b3ed3253952.png" width="317"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14223941/f974f350-f8d6-11e5-97b8-e7c5fc3ceb20.png" width="317"></a>
+<a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
+<a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375613/ea4e772e-fda5-11e5-9df6-2d1934cf18fe.jpg" width="317"></a>
+<a href="http://bit.do/shengsi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375610/ea4c32c0-fda5-11e5-9fe0-3a1f6dd7c0f3.jpg" width="317"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13417842/70b980a6-df3d-11e5-9d50-871a61e03822.jpg" width="317" height="91"></a>
-<a href="http://bit.do/cangzishi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/14063740/9ab28898-f3ac-11e5-80de-64d215ca39f5.jpg" width="317" height="91"></a>
+<a href="http://bit.do/cangzishi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="91"></a>
 ####▶ 音频集锦 · 免费在线收听及下载
 <a href="http://ur1.ca/op0fs" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375427/96fb8aea-fda4-11e5-9770-7c14db54ee08.jpg" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375426/96fb5e9e-fda4-11e5-93fa-cd0805485aa8.jpg" width="317" height="91"></a>
