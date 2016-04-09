@@ -31,9 +31,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zx-xxxg-m/zx-xxxg.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279879/de6a4576-fb72-11e5-811b-3da1d762f188.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/mhhb/mhhb-157/mhhb.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279880/de981c30-fb72-11e5-9a53-649160ac5d86.jpg" width="206" height="80"></a>
 <a href="http://ur1.ca/ooe8v" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14307226/bd4a2282-fc10-11e5-9f70-d4c0c7368882.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/JCFS1/JCFS1.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279883/dee0b102-fb72-11e5-8656-9fe3e24b37f9.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/JCFS1/JCFS2.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279882/dee05842-fb72-11e5-822a-cc1152659b91.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/JCFS1/JCFS3.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279884/dee43980-fb72-11e5-8072-d9790c3805d2.jpg" width="206" height="80"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279883/dee0b102-fb72-11e5-8656-9fe3e24b37f9.jpg" width="206" height="80"></a>
 ####▶ 精彩网站 · 免翻
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
 <a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
