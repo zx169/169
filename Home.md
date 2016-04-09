@@ -56,7 +56,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 #### ▶ 新纪元及其他杂志 · 免费高速在线阅读
 <a href="https://github.com/tomalltruthforyou/truth/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14224444/c26f61a8-f8e8-11e5-98c9-25d3acb5ddc0.png" width="210"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxsh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230918/8e42337e-f9b0-11e5-92b5-986afb445db7.png" width="210"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/pdf/listxsh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14401038/5dcdd4b4-fe47-11e5-933f-aae8c8ad17c5.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/10863846/308fd338-7faf-11e5-9cad-bd2efe947e06.jpg" width="639"></a>
 <hr></hr>
