@@ -43,15 +43,15 @@
 #### ▶ 明慧期刊 · 免费高速在线阅读
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400421/58a4af28-fe3b-11e5-8db5-a5c20a676c84.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13414515/7be2ca94-df21-11e5-8e4e-8277fc3305a1.jpg" width="100" height="142" vspace="15"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13414864/f50a8e96-df23-11e5-9fff-e3b3b95aef6a.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230812/68ab1126-f9ab-11e5-8cad-547169241a3c.png" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230814/bf013442-f9ab-11e5-83b3-9e43fd659023.png" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/11" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230817/f7dd1312-f9ab-11e5-9a71-8af2c2daa6dd.png" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/12" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230820/6433c786-f9ac-11e5-8580-bfc41a7f496c.png" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/13" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230829/ca784684-f9ac-11e5-9a15-f786d8f4a416.png" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230870/daafe0d2-f9ae-11e5-8abe-80928144e417.png" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230878/0e2bb4ea-f9af-11e5-9276-e2ce2dc16cc6.JPG" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14230886/4270cace-f9af-11e5-8283-01fa69f005f0.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400619/2229d600-fe3e-11e5-8122-ea8701b55aff.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400745/c4700ee6-fe40-11e5-80bd-31bed7eb80eb.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400802/c023c4ee-fe41-11e5-8f35-d19b5f34e5c5.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/11" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400847/64ba883a-fe42-11e5-8f5c-7e015f8d8ba3.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/12" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400894/4698562e-fe43-11e5-8234-a85a86def324.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/13" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400918/f7419134-fe43-11e5-9f68-7b236a6c7a9d.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400942/d7db1b70-fe44-11e5-9ca5-67d5985a4820.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400967/801254ac-fe45-11e5-9b54-e40eb3050c52.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400991/066edaf2-fe46-11e5-8730-0c0f581df83c.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/hsh/hsh-52.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400934/adc48c90-fe44-11e5-915e-028e8451652c.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 #### ▶ 新纪元及其他杂志 · 免费高速在线阅读
