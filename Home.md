@@ -20,6 +20,7 @@
 <a href="http://bit.do/cangzishi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="91"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/Legend/LegendOfTheFuture01.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402133/bac0bf62-fe6d-11e5-9723-6ebb93d3b777.jpg" width="317" height="91"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/Legend/LegendOfTheFuture02.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14403473/b22ba772-fe9a-11e5-8ecf-7b5e7b5e721a.jpg" width="317" height="91"></a>
+<a href="http://ur1.ca/ote45" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="91"></a>
 ####▶ 我要三退
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 ####▶ 音频集锦 · 免费在线收听及下载
