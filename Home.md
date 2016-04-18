@@ -12,19 +12,19 @@
 <a href="http://ur1.ca/op0ws" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279502/e48e38b0-fb70-11e5-9005-cc3e153dedc1.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/santui.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279503/e48fa93e-fb70-11e5-9cfd-e08b8e080078.jpg" width="100" height="142"></a>
 #### ▶ 大陆禁片 · 免费高速在线观看或下载
-<a href="http://bit.do/lvcheng" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
-<a href="http://bit.do/weihuo" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375613/ea4e772e-fda5-11e5-9df6-2d1934cf18fe.jpg" width="317"></a>
-<a href="http://bit.do/shengsi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375610/ea4c32c0-fda5-11e5-9fe0-3a1f6dd7c0f3.jpg" width="317"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375613/ea4e772e-fda5-11e5-9df6-2d1934cf18fe.jpg" width="317"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/organ.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375610/ea4c32c0-fda5-11e5-9fe0-3a1f6dd7c0f3.jpg" width="317"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402098/9e1da6b4-fe6c-11e5-80d5-b901a96faa92.jpg" width="317" height="91"></a>
-<a href="http://bit.do/cangzishi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="91"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/cangzishi.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="91"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/Legend/LegendOfTheFuture01.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402133/bac0bf62-fe6d-11e5-9723-6ebb93d3b777.jpg" width="317" height="91"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/Legend/LegendOfTheFuture02.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14403473/b22ba772-fe9a-11e5-8ecf-7b5e7b5e721a.jpg" width="317" height="91"></a>
-<a href="http://ur1.ca/ote45" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="91"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="91"></a>
 ####▶ 我要三退
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 ####▶ 音频集锦 · 免费在线收听及下载
-<a href="http://ur1.ca/op0fs" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375427/96fb8aea-fda4-11e5-9770-7c14db54ee08.jpg" width="317" height="91"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudio9ping.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375427/96fb8aea-fda4-11e5-9770-7c14db54ee08.jpg" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375426/96fb5e9e-fda4-11e5-93fa-cd0805485aa8.jpg" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiomtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375428/97321d8a-fda4-11e5-9b67-596dcfdf3308.jpg" width="317" height="91"></a>
 ####▶ 闪画集锦 · 免费高速在线观看
