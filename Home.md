@@ -11,6 +11,10 @@
 <a href="http://ur1.ca/op0wi" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279501/e489cd8e-fb70-11e5-8aee-c95406641827.jpg" width="100" height="142"></a>
 <a href="http://ur1.ca/op0ws" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279502/e48e38b0-fb70-11e5-9005-cc3e153dedc1.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/santui.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279503/e48fa93e-fb70-11e5-9cfd-e08b8e080078.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zeysp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665388/324a0d8a-0716-11e6-978f-6b5238da4173.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/disaster.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665389/324a7a0e-0716-11e6-86c3-35e95c15425e.jpg" width="100" height="142"></a>
 #### ▶ 大陆禁片 · 免费高速在线观看或下载
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375613/ea4e772e-fda5-11e5-9df6-2d1934cf18fe.jpg" width="317"></a>
