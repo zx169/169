@@ -27,11 +27,11 @@
 <a href="https://dctrz7l9ug6uw.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="91"></a>
 ####▶ 我要三退
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
-####▶ 音频集锦 · 免费在线收听及下载
+####▶ 音频集锦 · 在线收听及下载
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudio9ping.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375427/96fb8aea-fda4-11e5-9770-7c14db54ee08.jpg" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375426/96fb5e9e-fda4-11e5-93fa-cd0805485aa8.jpg" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiomtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375428/97321d8a-fda4-11e5-9b67-596dcfdf3308.jpg" width="317" height="91"></a>
-####▶ 闪画集锦 · 免费高速在线观看
+####▶ 闪画集锦 · 在线观看
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279885/dee6bcaa-fb72-11e5-8744-7c194ba21a05.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279887/deee3746-fb72-11e5-9e95-f143d08f680a.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/czsjm-m/czsjm.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279881/dec2929e-fb72-11e5-9160-1ba43be8c31a.JPG" width="206" height="80"></a>
@@ -64,7 +64,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400991/066edaf2-fe46-11e5-8730-0c0f581df83c.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/hsh/hsh-52.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400934/adc48c90-fe44-11e5-915e-028e8451652c.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
-#### ▶ 新纪元及其它精彩杂志 · 免费高速在线阅读或下载
+#### ▶ 新纪元及其它精彩杂志 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665309/86261332-0715-11e6-9aaf-2f02d14dec96.jpg" width="210"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14401038/5dcdd4b4-fe47-11e5-933f-aae8c8ad17c5.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
