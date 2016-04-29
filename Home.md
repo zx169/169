@@ -82,3 +82,4 @@
 - 翻墙软件(下载)网址：https://git.io/free
 - 手机翻墙：安卓 http://ur1.ca/oo05n 苹果 https://git.io/ifq
 - 欢迎反馈 youyuan669@yahoo.ca
+- 微信    freeland_2016
