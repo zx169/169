@@ -54,8 +54,8 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/13414515/7be2ca94-df21-11e5-8e4e-8277fc3305a1.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400421/58a4af28-fe3b-11e5-8db5-a5c20a676c84.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400619/2229d600-fe3e-11e5-8122-ea8701b55aff.JPG" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14693483/b0619738-07a2-11e6-840e-de8e3ce4fe50.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400802/c023c4ee-fe41-11e5-8f35-d19b5f34e5c5.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15036069/54956644-1258-11e6-9d04-9e2e408202e4.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15036032/f12ac964-1257-11e6-952e-c72bfe8f952e.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/11" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400847/64ba883a-fe42-11e5-8f5c-7e015f8d8ba3.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400967/801254ac-fe45-11e5-9b54-e40eb3050c52.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400991/066edaf2-fe46-11e5-8730-0c0f581df83c.JPG" width="100" height="142"></a>
@@ -63,9 +63,9 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400942/d7db1b70-fe44-11e5-9ca5-67d5985a4820.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/hsh/hsh-52.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400934/adc48c90-fe44-11e5-915e-028e8451652c.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/13" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665527/2c4eab1a-0717-11e6-85e9-6c5c369cd518.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/13" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15036055/3a7eda88-1258-11e6-9c76-929d173ccd38.jpg" width="100" height="142"></a>
 #### ▶ 新纪元及其它精彩杂志 · 在线阅读或下载
-<a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14934226/904431b6-0eed-11e6-883f-5398c37df744.jpg" width="210"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15035996/778cfa28-1257-11e6-91de-a2926e750d83.jpg" width="210"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14401038/5dcdd4b4-fe47-11e5-933f-aae8c8ad17c5.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
