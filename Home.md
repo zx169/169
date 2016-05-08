@@ -1,6 +1,8 @@
 ✪ 本站永久网址 https://Git.io/168 ✪   
+✪ 欢迎反馈  Email：youyuan669@yahoo.ca   微信：freeland_2016 ✪
 ####▶ 明慧特刊 · 在线阅读或下载
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/ysnbjhp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/bjmh-018.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279507/e4bce20a-fb70-11e5-9c29-649cbed2943d.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/cheat.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279500/e48634da-fb70-11e5-9ec9-53b364676322.jpg" width="100" height="142"></a>
@@ -12,6 +14,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/Organ.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279498/e4809804-fb70-11e5-91dc-d62390c4a3dc.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/sjhk.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279504/e4aeeaba-fb70-11e5-8ec2-893cecd781c9.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zyklmnm.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279506/e4b9ee38-fb70-11e5-8070-eb4e92b30b6e.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/610.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096160/36eabd50-14bb-11e6-8a09-239f033d9958.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/tianqian.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279505/e4b58d3e-fb70-11e5-8161-e17d7d65ddad.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zeysp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665388/324a0d8a-0716-11e6-978f-6b5238da4173.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
@@ -81,5 +84,3 @@
 - 邮箱索取 freeget.one@gmail.com 发送一封任意主题的空白信至该邮箱，即可收到最新版翻墙软件。若使用国内邮箱无法收到回信，请用海外邮箱再试一次，肯定能收到。
 - 翻墙软件(下载)网址：https://git.io/free
 - 手机翻墙：安卓 http://ur1.ca/oo05n 苹果 https://git.io/ifq
-- 欢迎反馈 youyuan669@yahoo.ca
-- 微信    freeland_2016
