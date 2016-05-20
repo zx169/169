@@ -19,7 +19,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zeysp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665388/324a0d8a-0716-11e6-978f-6b5238da4173.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/19" target="_blank">打印版下载</a>
-#### ▶ 大陆禁片 · 免费高速在线观看或下载
+#### ▶ 大陆禁片 · 在线观看或下载
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375613/ea4e772e-fda5-11e5-9df6-2d1934cf18fe.jpg" width="317"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/organ.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375610/ea4c32c0-fda5-11e5-9fe0-3a1f6dd7c0f3.jpg" width="317"></a>
@@ -29,6 +29,15 @@
 <a href="https://dctrz7l9ug6uw.cloudfront.net/Legend/LegendOfTheFuture01.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402133/bac0bf62-fe6d-11e5-9723-6ebb93d3b777.jpg" width="317" height="91"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/Legend/LegendOfTheFuture02.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14403473/b22ba772-fe9a-11e5-8ecf-7b5e7b5e721a.jpg" width="317" height="91"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="91"></a>
+####▶ 精彩网站 · 免翻直连
+<a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
+<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
+<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="317" height="91"></a>
+<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
+<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
+<a href="https://dvxykdxzflgpz.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
+<a href="https://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
 ####▶ 我要三退
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 ####▶ 音频集锦 · 在线收听及下载
@@ -48,15 +57,6 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/mingbai/mingbai-63/mb63.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096200/3a6d4df6-14bd-11e6-9054-ebaccc3507d3.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/zx/zx-78/zx78.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096207/50c9d948-14bd-11e6-9c95-c5f77d16be45.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/zx/zx-79/zx79.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096208/56aa30f6-14bd-11e6-849b-b485c86f16ff.jpg" width="206" height="80"></a>
-####▶ 精彩网站 · 免翻直连
-<a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
-<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
-<a href="https://dvxykdxzflgpz.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
-<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="317" height="91"></a>
-<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
-<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
-<a href="https://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
-<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
 #### ▶ 明慧期刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400540/d541010c-fe3c-11e5-8c0f-731928fec346.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096161/3f48875c-14bb-11e6-948c-b98f045f1731.jpg" width="100" height="142"></a>
