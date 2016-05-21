@@ -4,6 +4,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/ysnbjhp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/huangyan.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446398/d4d8723c-1eed-11e6-8145-d8f549e3ec1a.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/bjmh-018.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279507/e4bce20a-fb70-11e5-9c29-649cbed2943d.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/cheat.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279500/e48634da-fb70-11e5-9ec9-53b364676322.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/tuidang.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279499/e485d0f8-fb70-11e5-8859-1c8f5f22d48c.jpg" width="100" height="142"></a>
@@ -15,9 +16,13 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/sjhk.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279504/e4aeeaba-fb70-11e5-8ec2-893cecd781c9.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zyklmnm.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279506/e4b9ee38-fb70-11e5-8070-eb4e92b30b6e.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/610.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096160/36eabd50-14bb-11e6-8a09-239f033d9958.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/xinaoban.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446399/dd56adf2-1eed-11e6-9fd1-0fb1f2b619fd.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/tianqian.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279505/e4b58d3e-fb70-11e5-8161-e17d7d65ddad.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/ebao.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446397/d097077e-1eed-11e6-866b-8c5758ad00c1.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/zeysp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665388/324a0d8a-0716-11e6-978f-6b5238da4173.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/yuyantoday.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446400/e346a762-1eed-11e6-81a1-249155ee9d73.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/business.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446395/ca3e30dc-1eed-11e6-91a5-706fd35338a4.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/19" target="_blank">打印版下载</a>
 #### ▶ 大陆禁片 · 在线观看或下载
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
