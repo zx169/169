@@ -23,7 +23,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/yuyantoday.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446400/e346a762-1eed-11e6-81a1-249155ee9d73.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/business.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446395/ca3e30dc-1eed-11e6-91a5-706fd35338a4.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/19" target="_blank">打印版下载</a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/19" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446663/9882fa84-1ef5-11e6-949e-8be5904382bb.jpg" width="100" height="142"></a>
 #### ▶ 大陆禁片 · 在线观看或下载
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375613/ea4e772e-fda5-11e5-9df6-2d1934cf18fe.jpg" width="317"></a>
