@@ -1,7 +1,7 @@
 ✪ 本站永久网址 https://Git.io/168   
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016
 ####▶ 明慧特刊 · 在线阅读或下载
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/ysnbjhp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/huangyan.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446398/d4d8723c-1eed-11e6-8145-d8f549e3ec1a.jpg" width="100" height="142"></a>
