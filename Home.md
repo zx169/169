@@ -35,8 +35,8 @@
 <a href="https://dctrz7l9ug6uw.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/footprint.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15592370/925b8cf2-23e6-11e6-8165-8dbb1fde740a.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/saviour.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15592373/92c18296-23e6-11e6-8109-8032c263a980.jpg" width="317" height="123"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15594416/aeb198f8-23f8-11e6-937c-63887634c348.jpg" width="317" height="123"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="317" height="123"></a>
 
 ####▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
