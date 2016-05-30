@@ -93,5 +93,5 @@
 #### 持续翻墙方法
 - 收藏本站 http://bit.do/zx168
 - 邮箱索取 freeget.one@gmail.com 发送一封任意主题的空白信至该邮箱，即可收到最新版翻墙软件。若使用国内邮箱无法收到回信，请用海外邮箱再试一次，肯定能收到。
-- 翻墙软件(下载)网址：https://git.io/free
+- 翻墙软件(下载)网址：https://bit.ly/fq999
 - 手机翻墙：安卓 http://ur1.ca/oo05n 苹果 https://git.io/ifq
