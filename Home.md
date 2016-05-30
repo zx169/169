@@ -1,4 +1,4 @@
-✪ 本站永久网址 https://Git.io/168   
+✪ 本站永久网址 http://bit.do/zx168   
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016
 ####▶ 明慧特刊 · 在线阅读或下载
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
