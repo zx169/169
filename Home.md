@@ -32,7 +32,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402098/9e1da6b4-fe6c-11e5-80d5-b901a96faa92.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/cangzishi.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="123"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/22" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402133/bac0bf62-fe6d-11e5-9723-6ebb93d3b777.jpg" width="317" height="123"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/22" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15658078/8fe5ba2e-26a7-11e6-8254-4465cbb8e2a9.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15594416/aeb198f8-23f8-11e6-937c-63887634c348.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
