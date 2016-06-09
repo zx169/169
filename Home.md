@@ -1,7 +1,7 @@
 ✪ 本站永久网址 https://git.io/168   
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016
 ####▶ 特别关注
-<a href="https://dctrz7l9ug6uw.cloudfront.net/QinWei.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911714/7ee3ee42-2dc0-11e6-823d-b76159948cd5.gif" width="317" height="123"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/QinWei.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911714/7ee3ee42-2dc0-11e6-823d-b76159948cd5.gif" width="634" height="123"></a>
 ####▶ 明慧特刊 · 在线阅读或下载
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" width="100" height="142"></a>
@@ -38,6 +38,7 @@
 <a href="https://dctrz7l9ug6uw.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15594416/aeb198f8-23f8-11e6-937c-63887634c348.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/1400.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15915122/31408db0-2dd6-11e6-8943-8619a37e1722.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/saviour.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15592373/92c18296-23e6-11e6-8109-8032c263a980.jpg" width="317" height="123"></a>
 ####▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
@@ -72,7 +73,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911857/177f6a5a-2dc1-11e6-9e3a-7b9ae7cabd02.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911862/1c3cf828-2dc1-11e6-93f9-2bcc33340341.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911842/0d822cc2-2dc1-11e6-9f6a-05cb3702f830.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911872/2281959a-2dc1-11e6-9f63-6a75c5b9d355.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15915118/2bdc3d42-2dd6-11e6-976d-351bc4a051ed.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/11" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911886/30fd5f78-2dc1-11e6-8a12-4de1fda47068.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400967/801254ac-fe45-11e5-9b54-e40eb3050c52.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400991/066edaf2-fe46-11e5-8730-0c0f581df83c.JPG" width="100" height="142"></a>
