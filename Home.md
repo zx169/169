@@ -1,5 +1,5 @@
 ✪ 本站永久网址 https://git.io/168   
-✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016
+✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016； QQ 3490166426
 ####▶ 特别关注
 <a href="https://dctrz7l9ug6uw.cloudfront.net/QinWei.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911714/7ee3ee42-2dc0-11e6-823d-b76159948cd5.gif" width="634" height="123"></a>
 ####▶ 明慧特刊 · 在线阅读或下载
