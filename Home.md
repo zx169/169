@@ -1,7 +1,7 @@
 ✪ 本站永久网址 https://git.io/168   
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016； QQ 3490166426
 ####▶ 特别关注
-<a href="https://dctrz7l9ug6uw.cloudfront.net/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16440890/6990f666-3db5-11e6-995e-6ae0ed3eaf81.jpg" width="634" height="123"></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16462795/5fb5684e-3e22-11e6-9320-81ce022838a3.gif" width="634" height="123"></a>
 ####▶ 明慧特刊 · 在线阅读或下载
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" width="100" height="142"></a>
