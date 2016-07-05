@@ -71,7 +71,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911848/11bee618-2dc1-11e6-9e27-414bdda661fb.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911857/177f6a5a-2dc1-11e6-9e3a-7b9ae7cabd02.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911862/1c3cf828-2dc1-11e6-93f9-2bcc33340341.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16309649/0d50b64e-3959-11e6-9557-3d66c33ccfe6.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16572787/1c488b84-425c-11e6-8b40-161653dc9b07.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354814/fd573782-3a92-11e6-8cf8-173bbccd6844.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/11" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354815/0297c978-3a93-11e6-9cbd-08e7f388878c.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400967/801254ac-fe45-11e5-9b54-e40eb3050c52.JPG" width="100" height="142"></a>
@@ -81,14 +81,13 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/hsh/hsh-52.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400934/adc48c90-fe44-11e5-915e-028e8451652c.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 #### ▶ 精彩杂志 · 在线阅读或下载
-<a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354918/700717c2-3a96-11e6-9e57-6082d7a6e34a.jpg" width="210"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16572783/10ff799a-425c-11e6-9f5c-50edaba342eb.jpg" width="210"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15528394/1a54253e-2233-11e6-9c13-075148fdd086.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 <hr></hr>
 ###一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
-
 <a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
 <a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
 <a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
