@@ -27,6 +27,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/business.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446395/ca3e30dc-1eed-11e6-91a5-706fd35338a4.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/19" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446663/9882fa84-1ef5-11e6-949e-8be5904382bb.jpg" width="100" height="142"></a>
 #### ▶ 大陆禁片 · 在线观看或下载
+<a href="https://dctrz7l9ug6uw.cloudfront.net/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16462795/5fb5684e-3e22-11e6-9320-81ce022838a3.gif" width="634" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16539004/df8f319a-4024-11e6-9584-67c22b06b3fe.jpg" width="317" height="123"></a>
@@ -38,7 +39,6 @@
 <a href="https://dctrz7l9ug6uw.cloudfront.net/1400.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15915122/31408db0-2dd6-11e6-8943-8619a37e1722.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/organ.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375610/ea4c32c0-fda5-11e5-9fe0-3a1f6dd7c0f3.jpg" width="317"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/saviour.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15592373/92c18296-23e6-11e6-8109-8032c263a980.jpg" width="317" height="123"></a>
-<a href="https://dctrz7l9ug6uw.cloudfront.net/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16462795/5fb5684e-3e22-11e6-9320-81ce022838a3.gif" width="634" height="123"></a>
 ####▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
 <a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
