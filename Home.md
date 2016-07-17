@@ -1,6 +1,6 @@
 ✪ 本站永久网址 https://git.io/168   
-✪ 欢迎反馈： Email youyuan669@yahoo.ca；  
-微信 freeland_2016； QQ 3490166426
+✪ 欢迎反馈： Email youyuan669@yahoo.ca  
+✪ 微信 freeland_2016； QQ 3490166426
 ####▶ 特别关注
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375613/ea4e772e-fda5-11e5-9df6-2d1934cf18fe.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317"></a>
