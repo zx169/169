@@ -96,7 +96,9 @@
 ####▶一键翻墙 
 ✪ 简单快速的翻墙软件 ✪ 即时更新
 
-✓完全免费 &nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;   [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
+✓完全免费 &nbsp; ✓免安装  &nbsp;  ✓无插件无广告  &nbsp;   [
+
+【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
 
 <a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
 <a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
