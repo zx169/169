@@ -59,8 +59,8 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375426/96fb5e9e-fda4-11e5-93fa-cd0805485aa8.jpg" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiomtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375428/97321d8a-fda4-11e5-9b67-596dcfdf3308.jpg" width="317" height="91"></a>
 ####▶ 闪画集锦 · 在线观看
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661061/17273641/97f7b9ac-568a-11e6-8eb5-54ffa5bdcf5d.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661061/17273642/9804289a-568a-11e6-81fd-7ba608823482.jpg" width="206" height="80"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661061/17273641/97f7b9ac-568a-11e6-8eb5-54ffa5bdcf5d.jpg" width="130" height="50"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661061/17273642/9804289a-568a-11e6-81fd-7ba608823482.jpg" width="130" height="59"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/czsjm-m/czsjm.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279881/dec2929e-fb72-11e5-9160-1ba43be8c31a.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/why-m/why.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279886/deed4d68-fb72-11e5-86b7-b830d46cde06.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/santui-m/santui.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279888/df0d154e-fb72-11e5-8f14-d1afe25cfb4b.JPG" width="206" height="80"></a>
