@@ -1,6 +1,5 @@
 ✪ 点击 View All of README.md 查看全部内容
-
-✪ 本站永久网址 https://git.io/168   
+✪ 本站永久网址 https://github.com/zx169/169
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca  
 ✪ 微信 freeland_2016； QQ 3490166426
 ####▶ 特别关注
